@@ -1,9 +1,13 @@
-THE WHEEL : 
+# THE WHEEL  
 
-What? Wheel.
+### What?  
+A wheel. A decider. A force beyond mortal hesitation.  
 
-Why? Indecisiveness.
+### Why?  
+Because indecisiveness is a curse, and the Wheel is the cure.  
 
-How? Read.
+### How?  
+Spin. Accept. Obey.  
 
-Any further questions are to be answered by the Wheel itself.
+Any further questions?  
+Ask the Wheel. It knows all.  
